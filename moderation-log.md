@@ -1,3 +1,5 @@
+mightyiam has been suspended on community platforms until 2025-11-02 for bigotry.
+
 nyanbinary has been suspended on discourse for 30h to disgengage from heated discussions.
 
 otherthanemry has been banned for evasion and further escalation
